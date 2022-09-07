@@ -1,4 +1,4 @@
-# co30e4fed8f272afa05911673
+https://speed-typinggame-2022.netlify.app/
 
 Quick start:
 
